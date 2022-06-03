@@ -1,0 +1,1 @@
+# C-Users-Maria-Paula-.vscode-primeiro-js-primeiro-js-Reposit-rio-GIT
